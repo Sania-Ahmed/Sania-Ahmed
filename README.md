@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **tasminsania77@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1OSLhE8dJaeY-QAeejp8YapQU6qUDdv5G/view?usp=sharing](https://drive.google.com/file/d/1OSLhE8dJaeY-QAeejp8YapQU6qUDdv5G/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1lFWyH_WjHrkmrLFqkufWFYGsJT1x58cs/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
